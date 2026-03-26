@@ -1,4 +1,4 @@
-# 👋 Fala, eu sou o Bruno Naressi
+# 👋 Fala, eu sou o Bruno Naressi 
 
 🎓 Estudante de Ciência da Computação  
 📍 Itajaí, SC - Brasil  
