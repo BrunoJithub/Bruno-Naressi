@@ -41,8 +41,7 @@ Tenho experiência prévia com gestão, eventos e negócios, o que me permite un
 ---
 
 ## 📫 Contato
-📧 Email: SEUEMAILAQUI  
-💼 LinkedIn: SEULINKEDINAQUI  
+📧 Email: brunonaressi@outlook.com
 
 ---
 
